@@ -1,4 +1,4 @@
-<h1> urledlights is LED bulb manufacturer.</h1>
+<h1> UR LED LIGHTS is LED bulb manufacturer </h1>
 
 
 For more details contact us at:
