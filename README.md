@@ -6,6 +6,6 @@ Led light manufacturing in Faridabad.
 
 For more details contact us at:
 
-Phone: **9315666925**
+Phone: <strong>9315666925</strong>
 
 Email: vijender199413@gmail.com
