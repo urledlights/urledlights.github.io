@@ -1,6 +1,6 @@
 <h1> UR LED LIGHTS </h1>
-<h2>
-Led light manufacturing in Faridabad. 
+
+<h1> Led light manufacturing in Faridabad. 
 
 *UR LED LIGHTS offers a wide range of  quality LED lighting solutions, for  providing effective and energy-efficient lighting.* 
 
